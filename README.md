@@ -62,6 +62,7 @@
   - [Pepcoding](https://www.youtube.com/c/Pepcoding)
   - [Durga Sir](https://youtube.com/playlist?list=PLd3UqWTnYXOmx_J1774ukG_rvrpyWczm0)
   - [Anuj Bhaiya](https://www.youtube.com/playlist?list=PLUcsbZa0qzu3yNzzAxgvSgRobdUUJvz7p)
+  - [Telusko] (https://www.youtube.com/watch?v=bm0OyhwFDuY&list=PLsyeobzWxl7pe_IiTfNyr55kwJPWbgxB5&ab_channel=Telusko)
 
 <hr>   
   
